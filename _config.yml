@@ -1,4 +1,5 @@
 title: From Tennessee to Chicago # You will insert your title here.
+description: 
 
 baseurl: "/TennesseeChicago_Transcriptions" # the subpath of your site. Change it if the name of your repository is other than "mindoc"
 
