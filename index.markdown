@@ -42,7 +42,9 @@ Alma Hilton Marsells, February 14, 2005
 
 # Statement(s) by Richard Allen Hilton
 
-### Entering The Work Force
+Entering The Work Force
+
+---
 
 My working career started in May 1943, I had just turned 16 and immediately went to my high school counselor and got my working permit. I applied at a few different places, Alden's (a competitor of Sears) hired me and I was so excited - I was hired as a clerk and would be earning 12 ½ cents an hour (Wow!). Alden's was located on Grand Avenue, just a block west of Harlem Avenue, on the north side of the street - where Goldblatt's eventually took over. Would you believe, I was there only 2 days when Montgomery Ward's called and asked me to work there. I was so excited that I told Alden's I was quitting- after all, Montgomery Wards offered to double my wages - I would be earning 25 cents an hour. (Ward's was located on Grand Avenue, exactly across the street from Alden’s) Yippee!
 
@@ -89,9 +91,9 @@ Thank you Alyssa.
 
 **Humphrey Ave., Oak Park, IL**  
 
-I was born to Effie Malinda (Sims) Hilton and Almer Eric Hilton at West Suburban Hospital, Oak Park, Il., on August 25, 1936. At the time, we all lived in an apartment building on 7 West Thomas Street in Oak Park, Il.
+I was born to Effie Malinda (Sims) Hilton and Almer Eric Hilton at West Suburban Hospital, Oak Park, Il., on August 25, 1936. At the time, we all lived in an apartment building on 7 West Thomas Street in Oak Park, Il._
 
-My earliest recollections of the first 4 ½ years of my childhood are limited by the expanse of time between these experiences and the number of years that have followed. My Mother often bragged of my being potty trained by the age of 6 months. My wife Nancy thinks it was the other way around since I am such a "regular'' guy.
+My earliest recollections of the first 4 ½ years of my childhood are limited by the expanse of time between these experiences and the number of years that have followed. My Mother often bragged of my being potty trained by the age of 6 months. My wife Nancy thinks it was the other way around since I am such a "regular" guy.
 
 I can recall the name of Mr. & Mrs. Picell, an older couple that lived next door, to the north, 743 North Humphrey, in what I remember as a frame home with a closed-in porch. The house was painted a light green and the door was on the side of the house. When we would go back to visit after moving into the house where I "grew up", they would always have their green & white 1939 Plymouth in their garage where it stayed when Mr. Picell wasn't driving it. The last time I recall seeing that car (it was several years after we had moved away) it was in their garage and still in mint condition.
 
